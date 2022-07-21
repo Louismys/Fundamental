@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Louismys.
+- 👀 I’m interested in Data Analysis, Artificial Intelligence and many other software applications.
+- 🌱 I’m currently learning to programm. I'm relatively new to programming and I'm looking forward to get further into programming.
+- 📫 How to reach me: louismys@gmail.com (E-Mail Address), https://www.facebook.com/elias.myserlis (Facebook Profile).
